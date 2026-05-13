@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with top Windscribe Utility | split-tunneling + ad-blocker, the #1 utility. Includes split-tunneling and ad-blocker for a safer and more private
 
 
 
